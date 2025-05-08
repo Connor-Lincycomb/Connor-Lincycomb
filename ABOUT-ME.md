@@ -1,4 +1,4 @@
-Hi, I’m @Connor-Lincycomb
+Hi, I’m @Connor-Lincycomb.
 Here I post my original math practice problem sets.
 How to reach me: connor.lincycomb@gmail.com
 
